@@ -1,2 +1,0 @@
-# amarmalik.github.io
-Resume
